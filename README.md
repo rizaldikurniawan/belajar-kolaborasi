@@ -2,5 +2,3 @@
 
 
 selamat datang 
-
-ini dari khsusaps
